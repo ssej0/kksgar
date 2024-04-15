@@ -1,15 +1,20 @@
 <p align="center">
-  <img width="512" height="258" src="https://sun9-18.userapi.com/impg/Hsg2DDeJqvIFVfKcFdMNO3kmC1QbEr1M2EHP_A/dVkE3fg_Yfg.jpg?size=512x256&quality=96&sign=c1d1f364cae835d68e23bebdfe362184&c_uniq_tag=46NDLtg2qfM-0-l-l2zDM3K6rY5-D3hIzLZ_-yDQbEs&type=album">
+  <img width="360" height="360" src="https://preview.redd.it/been-getting-into-content-creation-for-pz-recently-and-was-v0-qc6o82s9lloa1.png?width=256&format=png&auto=webp&s=6c4b396581f153d52ecd8f8f2f2b3373c1fdca84">
 </p>
 
-* USING (RACIAL) SLURS FOR FUN ,,, thats bullshit
-
-- (OVER)SEXUALIZING EVERY HS CHARACTERS
-
-- HYPOCRITES
-
-- PEOPLE UNDER 12 / OVER 22
-
-- 
-
--
+<p align="center">
+• USING (RACIAL) SLURS FOR FUN
+<p align="center">
+• (OVER)SEXUALIZING EVERY HS CHARACTERS
+<p align="center">
+• HYPOCRITES
+<p align="center">
+• PEOPLE UNDER 12 / OVER 22
+<p align="center">
+• CALLING MLM SHIPS "YAOI" / WLW SHIPS "YURI" (get a rope for your neck and a chair after this)
+<p align="center">
+• PROSHIPPERS
+<p align="center">
+• STEPCESTUOUS / INCESTUOUS
+<p align="center">
+• Thinking that you can't be racist towards white people or that black washing isn't a thing
